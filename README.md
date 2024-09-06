@@ -1,7 +1,7 @@
 # Hey there, I'm Subhash Kumar! <img src="https://raw.githubusercontent.com/debdutgoswami/debdutgoswami/master/assets/gifs/Hi.gif" width="30px">
 <br>
 
-![](https://komarev.com/ghpvc/?username=bhanupriya-art&color=blue)<br>
+![](https://komarev.com/ghpvc/?username=supersubhash1435&color=blue)<br>
 ### Insanely Passionate and Ambitious Programmer 🚀<br>
 
   
